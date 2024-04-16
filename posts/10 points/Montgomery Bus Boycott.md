@@ -1,0 +1,1 @@
+This marathon of a boycott that lasted 381-days and protested the simple right of seating on busses. The most important figure in the boycott was [[Rosa Parks]] who started it by refusing a white man her seat. Later in to the boycott it was joined by leader [[Martin Luther King Jr]] who relied people to the cause. 
