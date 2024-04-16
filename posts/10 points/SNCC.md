@@ -1,2 +1,0 @@
-The Student Nonviolent Coordinating Committee was created by a campaign of [[Peaceful Protest]]: Sit-ins. The Group was created when 4 students were turned away service and another 300 came in to protests with them. SNCC goal was to organizing [[Sit-ins Campaign]], boycotts and other [[Peaceful Protest]].
-![[Pasted image 20240415011920.png]]
