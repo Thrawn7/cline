@@ -1,0 +1,3 @@
+[[Change From Protest]]
+Formed for Self-defense the black panthers were a group of activists that coined the term "Black Power".  Also this group started as a few of college students at Merritt College, and from the start they were more aggressive than other groups going to far as to make a "copwatching" patrol to challenge the excessive force and misconduct of the Oakland Police Department.
+![[Pasted image 20240415005856.png]]

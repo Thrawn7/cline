@@ -1,0 +1,2 @@
+ CORE or The Congress of Racial Equality was created on the Ideals and Ideas of Gandhi. CORE also played a key role in the [[Sit-ins Campaign]] and [[Freedom Rides Protests]] where many members on there bus were arrested for using non colored services. This is how Brian Purnell describes the CORE group in his book "CORE hoped to create an interracial, nonviolent army that would end racial segregation in America with campaigns that employed what Gandhi called _satyagraha_, which translates as 'soul force' or 'truth force'"
+![[Pasted image 20240415081310.png]]
